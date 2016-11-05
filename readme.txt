@@ -1,2 +1,1 @@
-my git 
-ok yuli
+good good study,day day up
